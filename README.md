@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @livethe9
 - 👀 I’m interested in girls
-- 🌱 I’m currently learning no stay alive
+- 🌱 I’m currently learning to stay alive
 - 💞️ I’m looking to collaborate with life
 - 📫 How to reach me just msg me on disscord maybe im on 
 
